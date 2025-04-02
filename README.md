@@ -1,1 +1,1 @@
-hii!!! ^_^..... PLZ CHECK MY PRNZ PAGE FOR MORE INFO!
+![](https://media.discordapp.net/attachments/1217783908247142440/1354109577246933123/skin_cha_main_1.png?ex=67edfb91&is=67ecaa11&hm=7c8126514080e7aa9633eed7415afce5fbe8b70fd980fb87f530988b81531972&=&format=webp&quality=lossless)
